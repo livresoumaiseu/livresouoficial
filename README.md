@@ -1,1 +1,1 @@
-# Redirecionamento para https://livresou.com.br/
+# Redirecionamento para https://livresou.com.br
